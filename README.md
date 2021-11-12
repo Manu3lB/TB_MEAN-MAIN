@@ -1,1 +1,1 @@
-# Ejemplo que se esta trabajnado en clase con Andres
+# Ejemplo que se esta trabajando en clase con Andres
